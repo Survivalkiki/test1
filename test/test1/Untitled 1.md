@@ -1,1 +1,0 @@
-Feelings, samskaras, resistance and practice
